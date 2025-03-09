@@ -1,2 +1,3 @@
 # Funinfortek1
-1
+THIS myu first rep0  let get started  . 
+
